@@ -1,2 +1,2 @@
-Finna work hard
+ work hard
 
